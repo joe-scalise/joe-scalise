@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @joe-scalise
+👋 Hi, I’m @joe-scalise
